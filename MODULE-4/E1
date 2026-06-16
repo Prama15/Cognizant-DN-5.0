@@ -1,1 +1,0 @@
-# Cognizant-DN-5.0
